@@ -11,4 +11,4 @@ Twitter: https://twitter.com/wintergenomics
 
 Instagram: https://www.instagram.com/wintergenomics/
 
-Youtube: https://www.youtube.com/channel/UCAE_Don78MR0bKKg8tLnZVA
+Youtube: https://www.youtube.com/c/WinterGenomics
